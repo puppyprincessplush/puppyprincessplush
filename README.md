@@ -1,13 +1,15 @@
 
+$\color{pink}\Huge{\{:-3!}}$
+
 
 ![image](https://i.postimg.cc/KjT3Zk1H/andrew-frame.webp)
 
 
-hallooo!
+$\color{pink}\Huge{\{Hallooo!}}$
 
 We'd like it if proshippers / darkshippers did NOT interact with us! Tank yu.
 
-( we will block on sight )
+( we $\color{pink}\Huge{\{WILL}}$ block on sight )
 
 Same goes for tcoaal fans.
 
@@ -19,7 +21,7 @@ rarely on dni
 
 sleeping + busy = offtab / doing something , away is when im ontab.
 
-IVANDREW SHIPPERS IWCARE!!! I also do not want Ivan defenders interacting, thankss ^_^
+IVANDREW SHIPPERS $\color{pink}\Huge{\{IWCARE!!!}}$ I also do not want Ivan defenders interacting, thankss ^_^
 
 LINKSS : https://strwb3rri.atabook.org/   /    https://pronouns.cc/@strwb3rri
 
