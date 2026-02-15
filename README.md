@@ -1,4 +1,5 @@
-
+<div align="center">
+  
 $\color{pink}\Huge{\{:-3!}}$
 
 
