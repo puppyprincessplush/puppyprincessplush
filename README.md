@@ -20,7 +20,7 @@ C*h is always welcomed! I luvvv cuddles if i'm not sitting with any oomfis :-3
 
 rarely on dni
 
-sleeping + busy = offtab / doing something , away is when im ontab.
+sleeping + busy = offtab / doing something
 
 IVANDREW SHIPPERS $\color{pink}\Huge{\{IWCARE!!!}}$ I also do not want Ivan defenders interacting, thankss ^_^
 
