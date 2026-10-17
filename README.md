@@ -1,6 +1,6 @@
 <div align="center">
   
-$\color{pink}\Huge{\{:-3!}}$
+$\color{pink}\Huge{\{(⸝⸝⸝• ω •⸝⸝⸝) ♡}}$
 
 
 ![image](https://i.postimg.cc/qMtbKfw1/devi.webp)
@@ -8,9 +8,7 @@ $\color{pink}\Huge{\{:-3!}}$
 
 $\color{pink}\Huge{\{Hallooo!}}$
 
-We'd like it if proshippers / darkshippers did NOT interact with us! Tank yu.
-
-( we $\color{pink}\Huge{\{WILL}}$ block on sight )
+We'd like it if proshippers / darkshippers did NOT interact with us! Tank yu
 
 Iwcare unless oomfis
 
@@ -18,8 +16,8 @@ C*h is always welcomed! I luvvv cuddles if i'm not sitting with any oomfis :-3
 
 rarely on dni
 
-sleeping + busy = offtab / doing something
+if i hid u pls dont take it personally ( •̯́ ^ •̯̀) i block freely
 
-IVANDREW SHIPPERS $\color{pink}\Huge{\{IWCARE!!!}}$ I also do not want Ivan defenders interacting, thankss ^_^
+
 
 https://strwb3rri.atabook.org/
