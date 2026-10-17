@@ -1,6 +1,7 @@
 <div align="center">
   
-$\color{pink}\Huge{\{ᜊ( ' ⩊ '𖦹)ᜊ}}$
+$\color{pink}\Huge{\{ᜊ( ´• ⩊ •`𖦹)ᜊ}}$
+
 
 
 ![image](https://i.postimg.cc/qMtbKfw1/devi.webp)
